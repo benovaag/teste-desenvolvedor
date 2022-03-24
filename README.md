@@ -25,7 +25,6 @@ Mobile: https://xd.adobe.com/view/a560ac36-f985-41f1-89e3-061695cf6a75-f033/
 
 ## Entrega do Projeto
 
-- O tempo limite de entrega do teste é até o dia 30/03/2022 as 18h00.
 - Após finalizado, zipar a pasta e enviar para:
 
 > ramon@benova.ag
