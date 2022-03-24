@@ -31,7 +31,10 @@ Mobile: https://xd.adobe.com/view/a560ac36-f985-41f1-89e3-061695cf6a75-f033/
 
 > lilian@benova.ag
 
+---
 
 Faça tudo que conseguir até o prazo :)
 
 Contanto que tudo o que for feito seja com atenção e qualidade, o término da página inteira não é necessariamente obrigatório.
+
+![Boa Sorte](https://c.tenor.com/CW7G6xH2W4YAAAAC/baby-yoda-may-the-force-be-with-you.gif)
